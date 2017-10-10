@@ -1,6 +1,4 @@
-﻿﻿Min penis.
-Hans penis.
-
+﻿﻿
 - Är bättre än din text.
 //Emil Gedenryd
 
@@ -11,3 +9,4 @@ Roger that, noPantsSquad, /Folly4k out.
 
 ITS ALL IN THE CARDS
 
+Dibs on nuclear -SirNaCl
