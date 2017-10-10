@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+﻿<<<<<<< READ
 ﻿Min penis.
 =======
 Min text.
@@ -8,3 +8,5 @@ Min text.
 
 WHO DARES TO DEFY MY WILL?
 Pubg onsdag kväll eller?? Letsgo Mylta P
+
+ITS ALL IN THE CARDS
