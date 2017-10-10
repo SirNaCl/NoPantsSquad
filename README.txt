@@ -8,3 +8,4 @@ Min text.
 
 WHO DARES TO DEFY MY WILL?
 Pubg onsdag kväll eller?? Letsgo Mylta P
+Roger that, noPantsSquad, /Folly4k out.
